@@ -1,4 +1,4 @@
-#  
+#  Experience anime vanguards like never before with anime vanguards Script elite, the #1 Script. Includes aimbot and no clip for unbeatable performance.
 
 
 
